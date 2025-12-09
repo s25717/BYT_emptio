@@ -1,0 +1,1 @@
+Link to class diagram https://lucid.app/lucidchart/5b6dad70-246f-412e-9774-b7272adff31f/edit?viewport_loc=-1210%2C-290%2C1786%2C983%2C.Q4MUjXso07N&invitationId=inv_1c74bda3-0c5c-4ffb-b3d3-354081e9e412
